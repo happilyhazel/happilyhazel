@@ -1,6 +1,6 @@
 ![kikuo art](https://i.pinimg.com/474x/30/1a/c2/301ac22cc8d6d9758a9dc2e05398ee64.jpg)
 
-[main](https://rentry.co/otherkith)        [byi](https://rentry.co/keithsinterests)          [lovemail](https://rentry.co/avan)
+[main](https://rentry.co/otherkith)            [byi](https://rentry.co/keithsinterests)                 [lovemail](https://rentry.co/avan)
 
 <!--
 **keitheatsteeth/keitheatsteeth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
