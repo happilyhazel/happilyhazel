@@ -1,4 +1,4 @@
-![kikuo art](https://i.pinimg.com/474x/30/1a/c2/301ac22cc8d6d9758a9dc2e05398ee64.jpg)
+![](https://i.pinimg.com/736x/fc/b4/0c/fcb40cd4ef7947f764e74a65fe59b2fd.jpg)
 
 [byi](https://rentry.co/byikeith) ⊹ [rentry](https://rentry.co/otherkith) ⊹ [en.prns](https://en.pronouns.page/@happilyhazel)
 
