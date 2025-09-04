@@ -1,6 +1,6 @@
 ![](https://i.pinimg.com/736x/fc/b4/0c/fcb40cd4ef7947f764e74a65fe59b2fd.jpg)
 
-[byi](https://rentry.co/byikeith) ⊹ [rentry](https://rentry.co/otherkith) ⊹ [en.prns](https://en.pronouns.page/@happilyhazel)
+[byi](https://rentry.co/byihazel) ⊹ [rentry](https://rentry.co/otherkith) ⊹ [en.prns](https://en.pronouns.page/@happilyhazel)
 
 <!--
 **keitheatsteeth/keitheatsteeth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
