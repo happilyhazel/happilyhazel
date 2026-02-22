@@ -1,10 +1,8 @@
-<p align="center">
-![](https://pbs.twimg.com/media/G5kPBVhWwAAt-4H?format=jpg&name=large)
-</p>
 
-<p align="center">
+![](https://pbs.twimg.com/media/G5kPBVhWwAAt-4H?format=jpg&name=large)
+
 [byi](https://rentry.co/byihazel) ⊹ [rentry](https://rentry.co/bellefromhell) ⊹ [en.prns](https://en.pronouns.page/@happilyhazel)
-</p>
+
 
 
 <!--
