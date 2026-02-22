@@ -1,6 +1,11 @@
-![](https://pbs.twimg.com/media/G5kPBVhWwAAt-4H?format=jpg&name=large)
+<p align="center">
+// ![](https://pbs.twimg.com/media/G5kPBVhWwAAt-4H?format=jpg&name=large)
+</p>
 
-[byi](https://rentry.co/byihazel) ⊹ [rentry](https://rentry.co/bellefromhell) ⊹ [en.prns](https://en.pronouns.page/@happilyhazel)
+<p align="center">
+// [byi](https://rentry.co/byihazel) ⊹ [rentry](https://rentry.co/bellefromhell) ⊹ [en.prns](https://en.pronouns.page/@happilyhazel)
+</p>
+
 
 <!--
 **keitheatsteeth/keitheatsteeth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
